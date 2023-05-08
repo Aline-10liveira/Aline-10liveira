@@ -17,7 +17,7 @@
 Me apaixonando a cada dia mais por tecnologia e impactar vidas através da programação.
 
 ## Contato:
-[Email](https://contatoalineoliveira10@gmail.com)
+[Email](contatoalineoliveira10@gmail.com)
 
 
 
