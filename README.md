@@ -1,4 +1,4 @@
-### Olá eu sou a Aline Oliveira ✋
+### Olá eu sou a Aline Oliveira ✋🏿
 
 [![Linkedin](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/aline-oliveira-0a5247249/)
 
